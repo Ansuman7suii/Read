@@ -1,2 +1,2 @@
-thus is ansuman from it club
+This is ansuman from IT club.
 
